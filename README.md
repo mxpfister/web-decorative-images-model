@@ -1,0 +1,1 @@
+# web-decorative-images-model
